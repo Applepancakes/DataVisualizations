@@ -12,10 +12,8 @@
 
 
 
-![image2](https://github.com/Applepancakes/DataVisualizations/assets/158091426/84597bda-209a-4d62-afaa-72f9f61b426c)
 
 
-![image3](https://github.com/Applepancakes/DataVisualizations/assets/158091426/a3b00f1e-6c6e-4b0e-a7fb-121f9ac207a1)
 
 
 ![image4](https://github.com/Applepancakes/DataVisualizations/assets/158091426/7f51f0a2-5ed5-4305-ae05-1b43f149a335)
