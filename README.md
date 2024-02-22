@@ -22,3 +22,25 @@
 
 
 ![afafaf5](https://github.com/Applepancakes/DataVisualizations/assets/158091426/7c7bd191-fda5-463b-97bc-71db02ab9e4c)
+
+
+
+
+
+![image](https://github.com/Applepancakes/DataVisualizations/assets/158091426/68c731e1-ac3a-4479-95f2-26ffe6add756)
+
+
+
+![image1](https://github.com/Applepancakes/DataVisualizations/assets/158091426/ac541ab2-e3c0-4b2e-a535-112da5d26168)
+
+
+
+
+![imag3e](https://github.com/Applepancakes/DataVisualizations/assets/158091426/b0d3ccc6-2b5f-427e-84ed-0bc4366dbc63)
+
+
+![image3](https://github.com/Applepancakes/DataVisualizations/assets/158091426/fa60ffdd-869c-401e-8473-db8f1ea3c183)
+
+
+
+
